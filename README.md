@@ -7,7 +7,6 @@
 ## Контакты
 
 - **Email:** P.S.Tkachev@gmail.com
-- **Телефон:** +7 (911) 931-37-15
 - **Telegram:** [@PS_tkachev](https://t.me/PS_tkachev)
 ---
 
